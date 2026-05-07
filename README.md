@@ -1,0 +1,1 @@
+# kyrsach_6_semak
